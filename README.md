@@ -1,2 +1,2 @@
 ## Test
-Juncture visual essays test
+Here is a resource.
